@@ -1,1 +1,1 @@
-# praticeㅁ
+# pratice
